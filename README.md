@@ -1,4 +1,4 @@
-# Surhay Yilmaz – Projekte
+# Hüseyin Surhay Yilmaz – Projekte
 
 Startseite: https://surhay276.github.io/
 
